@@ -23,4 +23,4 @@
 * Jul 2017 - Jul 2019 - Data Processing Specialist at LTD Synesis
 ###### ADDITIONAL INFO ######
 * Languages: English (B1). I was a team member of an Arabic project. 
-* Hobbies: Dancing, I also have been teached for 5 years
+* Hobbies: Dancing, I also have been teaching for 5 years
