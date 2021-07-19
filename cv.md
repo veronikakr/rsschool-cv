@@ -1,6 +1,6 @@
 # VERONIKA KURKINA #
 ### JavaScript Developer ###
-*mobile phone: +375298621078*
+*mobile phone: +375298621078*  
 *e-mail: veronika.kurkina.work@mail.ru*
 ###### SUMMARY ######
 * __Over 1 year__ of quality assurance experience 
